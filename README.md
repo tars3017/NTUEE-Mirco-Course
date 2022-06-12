@@ -16,4 +16,4 @@ You can eliminate the symbol by making your symbol on the left be same as the ri
 * Cable x15
 
 ## Vedio 
-https://youtu.be/UTW41dPpHwc
+[https://youtu.be/UTW41dPpHwc](https://youtu.be/5D0ND_6Ei38)
